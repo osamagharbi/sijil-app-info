@@ -105,7 +105,7 @@ We may update our Privacy Policy from time to time. We will notify you of any ch
 
 If you have any questions, concerns, or requests regarding this Privacy Policy or our data practices, please contact us at:
 
-- **Email:** [sijilapp@gmail.com](mailto:sijilapp@gmail.com)
+- **Email:** [sijil.contact@gmail.com](mailto:sijil.contact@gmail.com)
 
 ---
 
